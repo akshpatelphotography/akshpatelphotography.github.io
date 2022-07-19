@@ -1,1 +1,0 @@
-# akshpatelphotography.github.io
